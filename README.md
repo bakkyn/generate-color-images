@@ -23,5 +23,5 @@ tones and consists of thin twigs, which requires a lot of detail in advertising.
 desired result cannot be achieved in this picture.
 
 Sergey Prokudin-Gorsky. (2020, September 28). Retrieved November 28, 2020, from
-https://en.wikipedia.org/wiki/Sergey_Prokudin-Gorsky [1]
+https://en.wikipedia.org/wiki/Sergey_Prokudin-Gorsky [1]<br>
 Also you can check the web address for more explanation for all process that is included in about section.
